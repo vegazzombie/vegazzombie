@@ -1,7 +1,9 @@
+# $\textsf{\color{#F8B070}{ 𝚟𝚎𝚐𝚊𝚣𝚣𝚘𝚖𝚋𝚒𝚎 ⛯ }}$
 <p align="center"> <img src="https://i.postimg.cc/ht00RnfR/Untitled-design-9-removebg-preview.png" width="400"/>
 <p align="center"> <img src="https://i.postimg.cc/MHHGm82B/Danii-ezgif-com-optimize-3.gif" width="300"/>
 <p align="center"> $\textsf{\color{#F8B070}{ 🚓⌇ @ᴅᴀɴɪ . 𖥻꘩ }\  ︵︵🍮 ⸝⸝  𝘴𝘩𝘦 . 𝘩𝘦𝘳 Ꮺ}$
 <p align="center"> $\textsf{\color{#FFC683}{ 🎏⧽⊹ 𝚌𝚘𝚖𝚖𝚎𝚗𝚝 ˊ }\ ↶ on Atabook .ᐟ }$
 <p align="center"> $\textsf{\color{#F8B070}{  r̲e̲a̲d̲ Carrd }\ ★ ꒰ alt in desc! .∿ }$
 <p align="center"> $\textsf{\color{#F8B070}{ ⋮ ⌗ ┆𝙾𝚌 ｘ }\ ᯓ 𝘤𝘢𝘯𝘰𝘯 .ᐟ }$
+<p align="center"><b><a href="https://sugardani.carrd.co/"> ꒰ My Carrd ꕤ ꒱ </a>‎ 🍂 <a href="https://vegazzombie.atabook.org/">〢 atabookie ➷ ✻ </a>
 <p align="center"> <img src="https://i.postimg.cc/ht00RnfR/Untitled-design-9-removebg-preview.png" width="400"/>
