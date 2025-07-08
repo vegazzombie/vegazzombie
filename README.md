@@ -1,6 +1,6 @@
 # $\textsf{\color{#F8B070}{ 𝚟𝚎𝚐𝚊𝚣𝚣𝚘𝚖𝚋𝚒𝚎 ⚘ }}$
 <p align="center"> <img src="https://i.postimg.cc/ht00RnfR/Untitled-design-9-removebg-preview.png" width="400"/>
-<p align="center"> <img src="https://i.postimg.cc/bw8DSyyb/Leon-tv.gif" width="500"/>
+<p align="center"> <img src="https://i.postimg.cc/T3rv4bDL/Leontv-ezgif-com-speed.gif" width="500"/>
 <p align="center"> $\textsf{\color{#F8B070}{ 🚓⌇ @ᴅᴀɴɪ . 𖥻꘩ }\  ︵︵🍮 ⸝⸝  𝘴𝘩𝘦 . 𝘩𝘦𝘳 Ꮺ}$
 <p align="center"> $\textsf{\color{#FFC683}{ 🎏⧽⊹ 𝚌𝚘𝚖𝚖𝚎𝚗𝚝 ˊ }\ ↶ on ลtabooк .ᐟ }$
 <p align="center"> $\textsf{\color{#F8B070}{  r̲e̲a̲d̲ Carrd }\ ★ ꒰ 𝘢𝘯𝘥 rentry .∿ }$
