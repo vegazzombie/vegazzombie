@@ -4,7 +4,7 @@
 
 <p align="center"/>
 <p align="center">$\color{#C7E17F}{\textsf{ ↬ possible release date: 8/26/25}}$ <img src="https://i.postimg.cc/wBjhZfn5/fb1591a0-ezgif-com-effects.gif" width="20"/>
-<p align="center">$\color{#C7E17F}{\textsf{🌱 ⚹ Ninjago hyperfixation !!}}$
+<p align="center">$\color{#C7E17F}{\textsf{🌱 ⚹ Readme under work!!}}$
 
 <p align="center"> <img src="https://i.postimg.cc/R0SR9VJH/e2a31a23-ezgif-com-effects.gif"/>  <b><a href="https://rentry.co/crazydaisydani"> Rᥱᥒ𝗍rყ ✿ ⸝⸝ </a> 🐍 <b><a href="https://vegazzombie.atabook.org/"> ᥲ𝗍ᥲ𝘣𝘰𝘰𝘬 ᢉ𐭩 ੭ <b>
 
