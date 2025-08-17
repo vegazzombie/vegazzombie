@@ -5,7 +5,7 @@
 <p align="center"> <img src="https://i.postimg.cc/1XMPSMYp/pro1-ezgif-com-optimize.gif" width="500"/>
 
 <p align="center"/>
-<p align="center">$\color{#ded186}{\textsf{ ↬ possible release date: 8/26/25}}$ <img src="https://i.postimg.cc/8zTFSnK0/fb1591a0-ezgif-com-effects-1.gif" width="20"/>
+<p align="center">$\color{#ded186}{\textsf{ ↬ she/her . 16 . additional info soon}}$ <img src="https://i.postimg.cc/8zTFSnK0/fb1591a0-ezgif-com-effects-1.gif" width="20"/>
 <p align="center">$\color{#ded186}{\textsf{✎ ⚹ trying to be more active on pt !!}}$
 <p align="center">$\color{#ded186}{\textsf{⚋ Check out Alt page!! its way better than my main imo ⚋ }}$
 
