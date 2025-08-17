@@ -1,14 +1,16 @@
-## <p align="center"/> <img src="https://i.postimg.cc/8zVFLJt2/7e1d813e-ezgif-com-effects.gif" width="30"/>  <img src="https://i.postimg.cc/26jhhb8k/glitter-text-2.gif" width="400"/> <img src="https://i.postimg.cc/8zVFLJt2/7e1d813e-ezgif-com-effects.gif" width="30"/>
+## <p align="center"/> <img src="https://i.postimg.cc/nr7sF8f6/7e1d813e-ezgif-com-effects-1.gif" width="30"/>  <img src="https://i.postimg.cc/tTjNQz6R/glitter-text-4.gif" width="400"/> <img src="https://i.postimg.cc/nr7sF8f6/7e1d813e-ezgif-com-effects-1.gif" width="30"/>
 
-ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=ABB555&style=flat&label=AppleDippers!!_)
+ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=ded186&style=flat&label=AppleDippers!!_)
 
-<p align="center"> <img src="https://i.postimg.cc/44tC0B6h/lloydd-ezgif-com-optimize-1.gif" width="200"/>
+<p align="center"> <img src="https://i.postimg.cc/1XMPSMYp/pro1-ezgif-com-optimize.gif" width="600"/>
 
 <p align="center"/>
-<p align="center">$\color{#C7E17F}{\textsf{ ↬ possible release date: 8/26/25}}$ <img src="https://i.postimg.cc/wBjhZfn5/fb1591a0-ezgif-com-effects.gif" width="20"/>
-<p align="center">$\color{#C7E17F}{\textsf{🌱 ⚹ trying to be more active on pt !!}}$
-<p align="center">$\color{#C7E17F}{\textsf{⚋ Check out Alt page!! its way better than my main imo ⚋ }}$
+<p align="center">$\color{#ded186}{\textsf{ ↬ possible release date: 8/26/25}}$ <img src="https://i.postimg.cc/8zTFSnK0/fb1591a0-ezgif-com-effects-1.gif" width="20"/>
+<p align="center">$\color{#ded186}{\textsf{✎ ⚹ trying to be more active on pt !!}}$
+<p align="center">$\color{#ded186}{\textsf{⚋ Check out Alt page!! its way better than my main imo ⚋ }}$
 
-<p align="center"> <img src="https://i.postimg.cc/R0SR9VJH/e2a31a23-ezgif-com-effects.gif"/>  <b><a href="https://rentry.co/crazydaisydani"> Rᥱᥒ𝗍rყ ✿ ⸝⸝ </a> 🐍 <b><a href="https://vegazzombie.atabook.org/"> ᥲ𝗍ᥲ𝘣𝘰𝘰𝘬 ᢉ𐭩 ੭ <b>
+<p align="center"> <img src="https://i.postimg.cc/cLTv4MP4/e2a31a23-ezgif-com-effects-1.gif"/>  <b><a href="https://rentry.co/crazydaisydani"> Rᥱᥒ𝗍rყ ✿ ⸝⸝ </a>  <b><a href="https://vegazzombie.atabook.org/"> ᥲ𝗍ᥲ𝘣𝘰𝘰𝘬 ᢉ𐭩 ੭ <b>
+
+<p align="center"> <img src="https://i.postimg.cc/g0Tr3cYC/cupoftea-ezgif-com-effects-1.gif"/>
 
 ##
