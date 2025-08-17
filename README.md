@@ -1,4 +1,4 @@
-## <p align="center"/> <img src="https://i.postimg.cc/nr7sF8f6/7e1d813e-ezgif-com-effects-1.gif" width="30"/>  <img src="https://i.postimg.cc/tTjNQz6R/glitter-text-4.gif" width="400"/> <img src="https://i.postimg.cc/nr7sF8f6/7e1d813e-ezgif-com-effects-1.gif" width="30"/>
+## <p align="center"/> <img src="https://i.postimg.cc/tTjNQz6R/glitter-text-4.gif" width="400"/>
 
 ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=ded186&style=flat&label=AppleDippers!!_)
 
