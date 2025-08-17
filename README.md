@@ -2,7 +2,7 @@
 
 ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=ded186&style=flat&label=AppleDippers!!_)
 
-<p align="center"> <img src="https://i.postimg.cc/1XMPSMYp/pro1-ezgif-com-optimize.gif" width="600"/>
+<p align="center"> <img src="https://i.postimg.cc/1XMPSMYp/pro1-ezgif-com-optimize.gif" width="500"/>
 
 <p align="center"/>
 <p align="center">$\color{#ded186}{\textsf{ ↬ possible release date: 8/26/25}}$ <img src="https://i.postimg.cc/8zTFSnK0/fb1591a0-ezgif-com-effects-1.gif" width="20"/>
