@@ -2,7 +2,7 @@
 
 ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=ded186&style=flat&label=AppleDippers!!_)
 
-<p align="center"> <img src="https://i.postimg.cc/TPg5gb8G/pro-2.gif" width="500"/>
+<p align="center"> <img src="https://i.postimg.cc/nrPh6V80/pro2-ezgif-com-optimize.gif" width="500"/>
 
 <p align="center"/>
 <p align="center">$\color{#ded186}{\textsf{ ↬ she/her . 16 . additional info soon}}$ <img src="https://i.postimg.cc/8zTFSnK0/fb1591a0-ezgif-com-effects-1.gif" width="20"/>
