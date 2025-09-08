@@ -1,5 +1,5 @@
-## <p align="center"/> <img src="https://i.postimg.cc/tTjNQz6R/glitter-text-4.gif" width="400"/>
-
+## <p align="center"> <img src="https://i.postimg.cc/W16WxVLw/Untitled123-20250907180517.png" width="700"/>
+  
 ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=ded186&style=flat&label=AppleDippers!!_)
 
 <p align="center"> <img src="https://i.postimg.cc/nrPh6V80/pro2-ezgif-com-optimize.gif" width="500"/>
