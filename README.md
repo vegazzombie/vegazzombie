@@ -1,6 +1,6 @@
-## <p align="center"> <img src="https://i.postimg.cc/dQmyJMcC/glitter-text.gif" width="300"/>
+### <p align="center">  $\color{#bae68f}{\textsf{ In Progress ! ⛾}}$
 ***
-ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=b4c796&style=flat&label=Ninjas_goo!!_)
+ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=bae68f&style=flat&label=Ninjas_goo!!_)
 <p align="center"> <img src="https://i.postimg.cc/13VZPQVc/ezgif-com-effects.gif" width="90"/>
 <p align="center">
 <a href="https://vegazzombie.atabook.org/">
