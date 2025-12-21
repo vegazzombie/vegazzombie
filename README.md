@@ -1,4 +1,4 @@
-### <p align="center">  $\color{#475172}{\textsf{if you can't hang then there's the door, baby.}}$
+### <p align="center">  $\color{#c5be97}{\textsf{if you can't hang then there's the door, baby.}}$
 ***
 ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=454f71&style=flat&label=🌪)
 <p align="center"> <img src="https://i.postimg.cc/d1fTLdjg/morrolayout-ezgif-com-optimize-(1).gif" width="500"/>
