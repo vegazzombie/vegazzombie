@@ -2,7 +2,10 @@
 ***
 ㅤ<p align="center"> ![](https://komarev.com/ghpvc/?username=vegazzombie&color=454f71&style=flat&label=🌪)
 <p align="center"> <img src="https://i.postimg.cc/d1fTLdjg/morrolayout-ezgif-com-optimize-(1).gif" width="500"/>
-  
+
+<p align="center">  $\color{#4c5676}{\textsf{𝑴𝒐𝒓𝒆 𝒍𝒊𝒏𝒌𝒔 𝒂𝒏𝒅 𝑨𝒃𝒕 𝒎𝒆 𝒔𝒐𝒐𝒏.}}$
+<p align="center">  $\color{#4c5676}{\textsf{𝑯𝒆𝒂𝒗𝒊𝒍𝒚 𝑫𝑵𝑰 𝒛𝒊𝒐𝒏𝒊𝒔𝒕, 𝒔𝒆𝒙𝒊𝒔𝒕, 𝒑𝒓𝒐𝒔𝒉𝒊𝒑, 𝒂𝒏𝒕𝒊 𝒍𝒈𝒃𝒕𝒒+, 𝒓𝒂𝒄𝒊𝒔𝒕, 𝒂𝒏𝒕𝒊-𝒔𝒆𝒎𝒊𝒕𝒊𝒄, 𝒂𝒃𝒍𝒆𝒊𝒔𝒕}}$
+
 <p align="center"> <a href="https://vegazzombie.atabook.org/"> <img src="https://i.postimg.cc/BngWsCqb/Untitled131-20251221030016.png" alt="Click me!" width="200" />
 
 <p align="center">
