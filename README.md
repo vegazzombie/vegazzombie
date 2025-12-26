@@ -11,7 +11,6 @@
 <p align="center">
 <img src="https://i.postimg.cc/wj7WbKWj/ezgif-com-animated-gif-maker-(11).gif" alt="Boo!"  width="60" />
   
-<p align="center"> <a href="https://colormytree.me/2025/01KBS2T9S5STAZFNWFZPW77815"> <img src="https://i.postimg.cc/mrX0121b/Untitled131-20251221030024.png" alt="tysm"  width="260" />
   
 
   ***
