@@ -5,4 +5,4 @@
 <p align="center"> <img src="https://files.catbox.moe/tiigh4.jpeg" width="300"/>
 
 <br>
-</p> </div> <table> <table align="center"> <tr></tr> <td> <div align="center"> ${\textsf{\color{#71706f}!!!}}$ <br> ${\textsf{\color{#71706f}Rarely online}}$ ${\textsf{\color{#71706f}Not on PonyTown as often}}$ </td> </tr> </table> <p align="center">
+</p> </div> <table> <table align="center"> <tr></tr> <td> <div align="center"> ${\textsf{\color{#71706f}!!!}}$ <br> ${\textsf{\color{#71706f}Rarely online}}$ ${\textsf{\color{#71706f}/ Not on PonyTown as often}}$ </td> </tr> </table> <p align="center">
