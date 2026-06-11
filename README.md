@@ -2,7 +2,7 @@ ${\textsf{\color{#63adbf} Nightwing}}$
 *** 
 <p align="center"> <img src="https://files.catbox.moe/y7u4bf.png" width="500"/>
 
-<p align="center"> </a> <img src="https://komarev.com/ghpvc/?username=vegazzombie&style=for-the-badge&color=63adbf&label"/>
+<p align="center"> </a> <img src="https://komarev.com/ghpvc/?username=vegazzombie&abbreviated=true&style=flat-sqaure&color=63adbf&label"/>
 
 <p align="center"> <img src="https://files.catbox.moe/4c64j6.png" width="100"/> <img src="https://files.catbox.moe/jnlu6d.gif" width="100"/> <img src="https://files.catbox.moe/wikt2s.gif" width="109"/> <img src="https://files.catbox.moe/rascdk.gif" width="100"/> <img src="https://files.catbox.moe/4c64j6.png" width="100"/>
   
