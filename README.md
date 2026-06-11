@@ -10,7 +10,7 @@ ${\textsf{\color{#63adbf} Nightwing}}$
 <p align="center"> <img src="https://files.catbox.moe/59g58j.gif" width="70"/>
   
 <br>
-</p> </div> <table> <table align="center"> <tr></tr> <td> <div align="center"> ${\textsf{\color{#ffe2c7}౿౿౿}}$ <br> ${\textsf{\color{#9C784F}Interact freely }}$ ${\textsf{\color{#ffe2c7}ᰋᰋ}}$ ${\textsf{\color{#63adbf} multifandom}}$ ${\textsf{\color{#ffe2c7}ᰋᰋ}}$ ${\textsf{\color{#9C784F}socials soon}}$ <div align="center"> ${\textsf{\color{#ffe2c7}౿౿౿}}$ </td> </tr> </table> <p align="center">
+</p> </div> <table> <table align="center"> <tr></tr> <td> <div align="center"> ${\textsf{\color{#ffe2c7}౿౿౿}}$ <br> ${\textsf{\color{#9C784F}Interact freely }}$ ${\textsf{\color{#ffe2c7}ᰋᰋ}}$ ${\textsf{\color{#63adbf} multifandom}}$ ${\textsf{\color{#ffe2c7}ᰋᰋ}}$ ${\textsf{\color{#9C784F}Hispanic}}$ ${\textsf{\color{#ffe2c7}ᰋᰋ}}$ ${\textsf{\color{#63adbf} Socials soon!}}$ <div align="center"> ${\textsf{\color{#ffe2c7}Last Updated - June 11 2026}}$ <div align="center"> ${\textsf{\color{#ffe2c7}౿౿౿}}$ </td> </tr> </table> <p align="center">
 
 <p align="center"> <img src="https://files.catbox.moe/uazcdb.gif" width="100"/> <img src="https://files.catbox.moe/gdr03h.png" width="80"/> <img src="https://files.catbox.moe/37hf0k.gif" width="80"/> <img src="https://files.catbox.moe/jr7rup.png" width="80"/> <img src="https://files.catbox.moe/uazcdb.gif" width="100"/>
 
