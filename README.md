@@ -1,5 +1,7 @@
 ${\textsf{\color{#63adbf} Nightwing}}$
 *** 
+<p align="center"> <img src="https://files.catbox.moe/s5ssf7.png" width="600"/>
+
 <p align="center"> <img src="https://files.catbox.moe/jnlu6d.gif" width="100"/> <img src="https://files.catbox.moe/wikt2s.gif" width="109"/> <img src="https://files.catbox.moe/rascdk.gif" width="100"/>
 
 <br>
