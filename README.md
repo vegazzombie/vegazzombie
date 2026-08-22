@@ -1,2 +1,5 @@
-## wsg guys ! 
-<p align="center"> <img src="https://files.catbox.moe/j80q33.jpeg" width="300"/>
+ <p align="center"> wsg guys ! 
+   
+   ***
+<p align="center"> <img src="https://files.catbox.moe/578zue.jpeg" width="200"/> <img src="https://files.catbox.moe/fjei8a.jpeg" width="200"/> <img src="https://files.catbox.moe/578zue.jpeg" width="200"/>
+
