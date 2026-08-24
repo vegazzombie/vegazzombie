@@ -8,7 +8,7 @@
    
 <p align="center"> <img src="https://files.catbox.moe/578zue.jpeg" width="200"/> <img src="https://files.catbox.moe/fjei8a.jpeg" width="200"/> <img src="https://files.catbox.moe/578zue.jpeg" width="200"/>
 
-<p align="center"> $\textsf{\color{#F3A0EE}{anyone welcome to chitchat, I  love making friends!! }}$
+<p align="center"> $\textsf{\color{#F3A0EE}{anyone welcome to chitchat, I  love making friends!! C+H always! }}$
 <p align="center"> $\textsf{\color{#F3A0EE}{I don't get in gossip or drama online or irl. So pls don't involve me :) }}$
 <p align="center"> $\textsf{\color{#F3A0EE}{Multimedia! I am interested in any new media you'd recommend or would love to educate me in! <3 }}$
 <p align="center">  <img src="https://64.media.tumblr.com/4592194dafad11150a029d39fb20f415/e6d79ad3515c3513-a5/s100x200/abc8d3423838bd351c26f2444f6912ac46a04324.gif" width="40"/> <img src="https://64.media.tumblr.com/ef88399f6b5595b2c17a2ab5a2349dc4/e6d79ad3515c3513-d9/s100x200/4b5d726182f2149cd8b1aa241b53491d2c6bb9ad.gif" width="40"/> $\textsf{\color{#F3A0EE}{Links!}}$ <img src="https://64.media.tumblr.com/ef88399f6b5595b2c17a2ab5a2349dc4/e6d79ad3515c3513-d9/s100x200/4b5d726182f2149cd8b1aa241b53491d2c6bb9ad.gif" width="40"/>  <img src="https://64.media.tumblr.com/4592194dafad11150a029d39fb20f415/e6d79ad3515c3513-a5/s100x200/abc8d3423838bd351c26f2444f6912ac46a04324.gif" width="40"/>
