@@ -13,5 +13,5 @@
    
 <div align="center">
    
-![Static Badge](https://img.shields.io/badge/-F96CBC?style=social&logo=Roblox&logoColor=%23FE72D6&logoSize=auto&label=My%20roblox&link=https%3A%2F%2Fwww.roblox.com%2Fusers%2F770452793%2Fprofile)
+[![Static Badge](https://img.shields.io/badge/-F96CBC?style=social&logo=Roblox&logoColor=%23FE72D6&logoSize=auto&label=My%20roblox)](https://www.roblox.com/users/770452793/profile)
 </div>
