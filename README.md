@@ -11,4 +11,7 @@
 <p align="center"> $\textsf{\color{#F3A0EE}{Multimedia! I am interested in any new media you'd recommend or would love to educate me in! <3 }}$
 <p align="center"> $\textsf{\color{#F3A0EE}{Links soon!}}$
    
-
+<div align="center">
+   
+![Static Badge](https://img.shields.io/badge/-F96CBC?style=social&logo=Roblox&logoColor=%23FE72D6&logoSize=auto&label=My%20roblox&link=https%3A%2F%2Fwww.roblox.com%2Fusers%2F770452793%2Fprofile)
+</div>
