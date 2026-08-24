@@ -14,7 +14,7 @@
    
 <div align="center">
    
-[![Static Badge](https://img.shields.io/badge/-F96CBC?style=social&logo=Roblox&logoColor=%23FE72D6&logoSize=auto&label=My%20roblox)](https://www.roblox.com/users/770452793/profile) [![Static Badge](https://img.shields.io/badge/-%233C83F6?style=social&logo=Carrd&logoColor=%23FD17A8&logoSize=auto&label=About%20me%20Carrd!)](https://cutiesugar.carrd.co/) [![Static Badge](https://img.shields.io/badge/-%233C83F6?style=social&logo=Discord&logoColor=%23E369C0&logoSize=auto&label=My%20discord)](discord.com/user/1231824386038698085)
+[![Static Badge](https://img.shields.io/badge/-F96CBC?style=social&logo=Roblox&logoColor=%23FE72D6&logoSize=auto&label=My%20roblox)](https://www.roblox.com/users/770452793/profile) [![Static Badge](https://img.shields.io/badge/-%233C83F6?style=social&logo=Carrd&logoColor=%23FD17A8&logoSize=auto&label=About%20me%20Carrd!)](https://cutiesugar.carrd.co/) [![Static Badge](https://img.shields.io/badge/-%233C83F6?style=social&logo=Discord&logoColor=%23E369C0&logoSize=auto&label=My%20discord)](https://discordapp.com/users/1231824386038698085)
 
 </div>
 
