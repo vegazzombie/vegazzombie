@@ -5,4 +5,4 @@
   
 <p align="center"> <img src="https://files.catbox.moe/6s6ics.gif" width="600"/>
   
-<p align="center"> <img src="https://files.catbox.moe/6aijcc.gif"/>
+<p align="center"> <img src="https://i.postimg.cc/Z5kpKNN1/output-onlinegiftools5-ezgif-com-optimize-(1).gif" width="300" />
