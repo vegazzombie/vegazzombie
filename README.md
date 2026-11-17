@@ -7,7 +7,7 @@
 <p align="center"> <img src="https://files.catbox.moe/2fancz.gif" width="300"/>
   
   
-<p align="center"> <img src="https://files.catbox.moe/6s6ics.gif" width="700"/>
+<p align="center"> <img src="https://files.catbox.moe/6s6ics.gif" width="500"/>
 
 <p align="center"> <img src="https://files.catbox.moe/2fancz.gif" width="300"/>
   
