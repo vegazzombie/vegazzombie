@@ -1,5 +1,7 @@
 <h2 align="center"> $\textsf{\color{#8D867D}{Zombies <3 Brains !!}}$ </h2>
 
+<h3 align="center"> $\textsf{\color{#8D867D}{Character art Is made by me!!}}$ </h3>
+
 <p align="center"> </a> <img src="https://komarev.com/ghpvc/?username=vegazzombie&abbreviated=true&style=for-the-badge&color=D39289&base=200&label=🧠+fresh+brains" /> <p align="center"> <br> <p align="center">
 
   
