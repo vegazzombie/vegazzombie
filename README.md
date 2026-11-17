@@ -12,4 +12,4 @@
 
 </td> </tr> </table> <p align="center">
 
-<br> </details> <details align="center"> <summary>ㅤ ${\textsf{\color{#D39289}ATABOOK! ᰋ}}$ </summary> <a href="https://vegazzombie.atabook.org/"> Click here! ੯•﹅ ੭ </details> <details align="center"> <summary>ㅤ ${\textsf{\color{#A5A697}CARRD ᰋ}}$ </summary> <a href="https://cutiesugar.carrd.co/"> Click here! ੯•﹅ ੭ </details> <br> </div> <table> <table align="center">
+<br> </details> <details align="center"> <summary>ㅤ ${\textsf{\color{#D39289}ATABOOK! ᰋ}}$ </summary> <a href="https://vegazzombie.atabook.org/"> Click here! ੯•﹅ ੭ </details> <details align="center"> <summary>ㅤ ${\textsf{\color{#A5A697}CARRD ᰋ}}$ </summary> <a href="https://cutiesugar.carrd.co/"> Click here! ੯•﹅ ੭ </details> </details> <details align="center"> <summary>ㅤ ${\textsf{\color{#D39289}ATABOOK! ᰋ}}$ </summary> <a href="https://vegazzombie.atabook.org/"> Click here! ੯•﹅ ੭ </details> </div> <table> <table align="center">
